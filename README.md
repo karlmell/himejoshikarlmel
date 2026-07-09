@@ -5,6 +5,6 @@
   
   
   
-  <img width="900" height="400" alt="image" src="https://github.com/user-attachments/assets/f4c008f1-774d-4c4e-8501-3e0ffd08ab00" />
+  <img width="1000" height="600" alt="image" src="https://github.com/user-attachments/assets/f4c008f1-774d-4c4e-8501-3e0ffd08ab00" />
 
 Art not by me;, Irig / @Lrigreddahc on X
