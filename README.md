@@ -16,9 +16,9 @@ Art not by me;, Irig / @Lrigreddahc on X
 🌙🍓,
 
 
-. minor!!!!! /weirdos DNI/genderfluid . ,
+. minor!!!!! /weirdos DNI/genderfluid . ,                                                EVERY NOW AND THEN I FALL APART
 
- .  .  ;;disc-@vulprith
+ .  .  ;;disc-@vulprith                                                  AND I NEED YOU NOW TONIGHT
  
-, check sp / moonberry fans pls int ,, .
-
+, check sp / moonberry fans pls int ,, .                                                       AND I NEED YOU MORE THAN EVER
+                                                                      AND IF YOU ONLY HOLD ME TIGHT
