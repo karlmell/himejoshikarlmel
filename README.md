@@ -11,13 +11,11 @@ I love moonberry ⋆. 𐙚 ˚
 Art not by me;, Irig / @Lrigreddahc on X
 
 ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───── ⋆⋅𖤐⋅⋆ ──────  ..
-,
-,
-,
+
+
 🌙🍓,
-,
-,
-,
+
+
 . minor!!!!! /weirdos DNI/genderfluid . ,
 
 , check sp / moonberry fans pls int ,, .
